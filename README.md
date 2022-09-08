@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LeoTruenow11
+- 👀 I’m interested in lerning a bit more every day 
+- 🌱 I’m currently studying a Software Engineering Bachelor
+- 💞️ I’m looking to collaborate on any proyect that could bring me some experience 
